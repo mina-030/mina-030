@@ -11,3 +11,8 @@ I believe good code is like a poem — clear, simple, and easy to understand. I�
 
 Feel free to connect if you’d like to collaborate or have feedback!
 Have a good day!
+
+Fun Facts:
+- I can talk all day long about Made In Abyss.
+- Big fan of K-on, Shugo Chara!, Fate Stay Night and Puella Magi Madoka
+- Have a lovely cat
